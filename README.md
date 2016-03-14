@@ -6,4 +6,6 @@ Strawberry was cold.  Snowy.  Icy.
 
 The weather is warming.  I hope to ride my mountain bike more now.
 
-Now it has turned for the worst.  There is even a chance of snow tomorrow.  Lame.
+Now it has turned for the worse.  There is even a chance of snow tomorrow.  Lame.
+
+The canyons of Ding and Dang.  Side by side in south-central Utah, are great for hiking.
