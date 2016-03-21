@@ -10,4 +10,4 @@ Now it has turned for the worse.  There is even a chance of snow tomorrow.  Lame
 
 The canyons of Ding and Dang.  Side by side in south-central Utah, are great for hiking.
 
-Weather is back to honor spring.  Near 70F today.  Why aren't hiking in the mountains?
+Weather is back to honor spring.  Near 70F today.  Why aren't hiking in the mountains?  Now am I going to add some more text and then branch the change.
